@@ -6,4 +6,4 @@
 
 <p>* love u artemiy and kenny you guys are the bestest friends ever :~)</p>
 
-<p>* fictkin & copinglinks: yosuke hanamura, ren amamiya, makoto yuki, kieran pokemon, red pokemon, riddle rosehearts, azul ashengrotto, silver vanrouge, lohen genshin, kaveh genshin</p>
+<p>* fictkin & copinglinks: yosuke hanamura, ren amamiya, makoto yuki, kieran pokemon, red pokemon, riddle rosehearts, azul ashengrotto, silver vanrouge, lohen genshin, kaveh genshin, mizuki kawano, dave strider</p>
